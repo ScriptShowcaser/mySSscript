@@ -1,2 +1,1 @@
-# mySSscript
-cringe
+your mom fat
